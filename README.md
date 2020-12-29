@@ -1,2 +1,2 @@
-# illuminati🙌congo/ | a Handshake top level domain
+# illuminati🙌congo/ | an emoji Handshake top level domain
 Illuminati🙌Congo
